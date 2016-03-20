@@ -1,0 +1,9 @@
+ - 60g - crème fraiche epaisse (isigny like)
+ - 20g - beurre salé
+ - 7g - sucre vanillé
+ - 53g - sucre glace
+ - 50cl - lait
+ - 2 - oeufs
+ - 300g - farine
+ - 1g - mahlab
+ - 1g - cannelle

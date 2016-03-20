@@ -1,0 +1,10 @@
+ - oeufs - séparé le blanc des jaunes
+ - monter les blancs en neige
+ - faire fondre le beurre et mélanger pour le conserver sous forme de pate
+ - mélanger la farine, le sucre vanillé, le sucre glace, le mahlab, la cannelle et la levure dans un grand bol
+ - ajouter la creme dans les jaunes, mélanger.
+ - ajouter le beurre dans la jaune + creme
+ - ajouter le lait dans jaune + creme + beurre
+ - ajouter la farine++ et les jaunes, sur les blancs
+ - melanger le tout en essayant de ne pas casser les blancs
+ - laisser reposer jusqu'à la dégustation
