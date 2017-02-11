@@ -1,0 +1,14 @@
+ - melanger le sucre, la levure et le sucre
+ - separer les blancs des jaunes
+ - faire monter les blancs en neige (idealement avec un robot)
+ - faire fondre le beurre
+ - extraire le zeste du citron avec une rape fine
+ - ajouter le zeste aux jaunes d'oeufs
+ - ajouter le beurre (refroidi) au jaunes et bien melanger pour eviter que ca se fige
+ - ajouter le lait et ensuite le citron, bien melanger
+ - incorporer la farine (plus sucres et levure) dans les blancs (avec un bateur plat)
+ - ajouter les jaunes, beurre etc dans les blancs
+ - laisser reposer la pate
+ - prechauffer le four a 200 degres
+ - ajouter un peu de matiere grasse a votre moule si il n'est pas en silicone
+ - faire cuire les madeleines 10 minutes

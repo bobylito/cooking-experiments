@@ -1,0 +1,3 @@
+ - pour mieux controler la mise en place de la pate dans les trou du moules, utilisez une louche et une cuillere pour avoir plus de flexibilite
+ - utiliser un robot rend le travail plus facile
+ - utiliser le fouet pour monter les blancs, mais utiliser le batteur pour integrer les autres elements dans les blancs
